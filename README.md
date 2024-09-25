@@ -12,7 +12,7 @@
     - Sat at 2PM
 
 ## 🕒 Special This week:
-- 
+- N/A
 
 ## 📆 Upcoming:
 - 10/13-15: Fall break trip to Chicago 🚗💨 ([Details and sign-up here](https://forms.gle/kbRZGeVGJZXchwZQ7))
