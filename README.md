@@ -9,7 +9,7 @@
     - Fri at 6:30PM
     - Sat at 2PM
 
-## 🕒 Special This week:
+## 🕒 This week:
 - N/A
 
 ## 📆 Upcoming:
