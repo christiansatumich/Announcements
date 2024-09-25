@@ -1,4 +1,4 @@
-# Christian Students at Michigan Announcements
+# CSM Announcements
 
 ## 🔁 Recurring:
 - 🙌 Thursday Revive! 9/5 - 11/21 ([Click here for flyer](https://drive.google.com/file/d/1uefOWIYneoHcTsMPOc_Y3IGTiAWafGAA/view?usp=drive_link))
