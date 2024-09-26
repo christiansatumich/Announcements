@@ -11,8 +11,5 @@
     - Fri at 6:30PM
     - Sat at 2PM
 
-## 🕒 This week:
-- N/A
-
-## 📆 Upcoming:
+## 🕒 Upcoming:
 - 10/13-15: Fall break trip to Chicago 🚗💨 ([Details and sign-up here](https://forms.gle/kbRZGeVGJZXchwZQ7))
