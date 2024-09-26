@@ -14,6 +14,6 @@
     - Sat at 2PM
 
 ## 🕒 Upcoming:
-- **Fall break trip to Chicago** 🚗💨
+- 🚐 **Fall break trip to Chicago**
     - Oct 13-15 (Sun-Tue)
     - [Details and sign-up here](https://forms.gle/kbRZGeVGJZXchwZQ7)
