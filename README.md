@@ -1,7 +1,7 @@
 ## 🔁 Recurring:
 - 🙌 **Revive!** ([Click here for flyer](https://drive.google.com/file/d/1uefOWIYneoHcTsMPOc_Y3IGTiAWafGAA/view?usp=drive_link))
     - Every Thu at 7:30PM from Sep 5 - Nov 21 in the Michigan Union, 2nd floor (Room 2210 ABC)
-    - Optional dinner before Revive each week at 6:30PM in the Union, 1st floor (back of Panera)
+    - Optional dinner before Revive each week at 6:30PM in the Union, 1st floor at the back of Panera. [Click here to place your dinner order](https://docs.google.com/spreadsheets/d/12TVDQ02xA1ZZCSKc82Ov_jJqLw0O_uEsFYKsIrhHY00/edit?usp=drivesdk) before 5PM on Thu
     - 📄 [Revive Handout #4](https://drive.google.com/file/d/1KT6m51YLZ4S-7ugIdO8LNNki-4fKWSD8/view?usp=sharing)
     - 📄 [Revive Handout #3](https://drive.google.com/file/d/1L_mDd1LPKNEzKOIGm38PG_dhvnAH0fZT/view?usp=drive_link)
 - 🙌 **Sunday Worship & Communion**
