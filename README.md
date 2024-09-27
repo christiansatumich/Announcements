@@ -17,3 +17,8 @@
 - 🚐 **Fall break trip to Chicago**
     - Oct 13-15 (Sun-Tue)
     - [Details and sign-up here](https://forms.gle/kbRZGeVGJZXchwZQ7)
+
+## 📱 Resources
+- **Revive! App**
+    - [Click here for Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share)
+    - [Click here for iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone)
