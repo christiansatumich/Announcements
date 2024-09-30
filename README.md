@@ -18,7 +18,8 @@
     - Oct 13-15 (Sun-Tue)
     - [Details and sign-up here](https://forms.gle/kbRZGeVGJZXchwZQ7)
 - 📖 **Gospel of John Bible Reading Challenge**
-    -  1 chapter per day for 3 weeks, beginning Oct 3! ➡️ [Submit daily reading here](https://forms.gle/qbAYJ5S1YQX3wZNm9)
+    -  1 chapter per day for 3 weeks, beginning Oct 3!
+    -  ➡️ [Log daily reading here](https://forms.gle/qbAYJ5S1YQX3wZNm9)
 
 ## 📖 Resources
 - 📱 Revive! App ([Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share), [iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone))
