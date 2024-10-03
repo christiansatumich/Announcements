@@ -20,6 +20,7 @@
 - 📖 **Gospel of John Bible Reading Challenge**
     -  1 chapter per day for 3 weeks, beginning Oct 3!
     -  ➡️ [Log daily reading here](https://forms.gle/qbAYJ5S1YQX3wZNm9)
+- 🥳 **Celebration Lunch**: Nov 23 at 11AM
 
 ## 📖 Resources
 - 📱 Revive! App ([Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share), [iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone))
