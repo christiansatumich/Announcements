@@ -27,4 +27,5 @@
 
 ## 📖 Resources
 - 📱 Revive! App ([Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share), [iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone))
+- [Club WhatsApp Chat](https://chat.whatsapp.com/GYEtsgaZn6iLYX8MHpSJVp)
 - 📄 [Fall 2024 Revive Handouts](https://drive.google.com/drive/folders/1ET9nK7HIynR2FEpGmpnasVpP_ntsFE1s?usp=drive_link)
