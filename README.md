@@ -14,9 +14,11 @@
     - Sat at 2PM
 
 ## 🕒 Upcoming
-- 🚐 **Fall break trip to Chicago**
+- 🚐 **Fall Break Trip to Chicago**
     - Oct 13-15 (Sun-Tue)
-    - [Details and sign-up here](https://forms.gle/kbRZGeVGJZXchwZQ7)
+- 🎸 **Singing time**
+    - Nov 2 at 7PM in a Christian home. Details TBA.
+    - Feel free to bring instruments!
 - 📖 **Gospel of John Bible Reading Challenge**
     -  1 chapter per day for 3 weeks, beginning Oct 3!
     -  ➡️ [Log daily reading here](https://forms.gle/qbAYJ5S1YQX3wZNm9)
