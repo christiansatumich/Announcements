@@ -6,12 +6,12 @@
     - 📄 [Revive Handout #4](https://drive.google.com/file/d/1KT6m51YLZ4S-7ugIdO8LNNki-4fKWSD8/view?usp=sharing)
 - 🙌 **Sunday Worship & Communion**
     - 10AM - 12PM at [Bach Elementary School](https://maps.app.goo.gl/dZPSs5uELxZ6f25e6). Contact for Zoom details.
-- 🙏 **Tue Night Prayer Meeting**
-    - 7:30 - 8:30PM at [Turner Resource Center](https://maps.app.goo.gl/68Ut4Q6T4kP9o5zT6). Contact for Zoom details.
 - 🏠 **Weekly Home Gatherings** (contact for details and rides!)
     - Wed at 6:30PM
     - Fri at 6:30PM
     - Sat at 2PM
+- 🙏 **Tue Night Prayer Meeting**
+    - 7:30 - 8:30PM at [Turner Resource Center](https://maps.app.goo.gl/68Ut4Q6T4kP9o5zT6). Contact for Zoom details.
 
 ## 🕒 Upcoming
 - 🚐 **Fall Break Trip to Chicago**
