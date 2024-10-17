@@ -14,6 +14,8 @@
     - 7:30 - 8:30PM at [Turner Resource Center](https://maps.app.goo.gl/68Ut4Q6T4kP9o5zT6). Contact for Zoom details.
 
 ## 🕒 Upcoming
+- 🎸 **Dinner & Singing**
+    - Oct 18 at 6:30PM in a Christian home.  Contact for details and rides.
 - 🎸 **Singing time**
     - Nov 2 at 7PM in a Christian home. Details TBA.
     - Feel free to bring instruments!
