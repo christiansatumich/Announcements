@@ -2,8 +2,8 @@
 - 🙌 **Revive!** ([Click here for flyer](https://drive.google.com/file/d/1uefOWIYneoHcTsMPOc_Y3IGTiAWafGAA/view?usp=drive_link))
     - Every Thu at 7:30PM from Sep 5 - Nov 21 in the Michigan Union, 2nd floor (Room 2210 ABC)
     - Optional dinner before Revive each week at 6:30PM in the Union, 1st floor at the back of Panera. [Click here to place your dinner order](https://docs.google.com/spreadsheets/d/12TVDQ02xA1ZZCSKc82Ov_jJqLw0O_uEsFYKsIrhHY00/edit?usp=drivesdk) before 5PM on Thu
+    - 📄 [Revive Handout #8](https://drive.google.com/file/d/1LjO6ers5573zmnZ71ZnxvzKT3MJeE_tk/view?usp=drive_link)
     - 📄 [Revive Handout #7](https://drive.google.com/file/d/1sXO6x3RlNS8Lz2t5W35AxJLNChuvXTw3/view?usp=drive_link)
-    - 📄 [Revive Handout #6](https://drive.google.com/file/d/14s4yuI11ykek6-nRlZUw45SRt9AM6cRY/view?usp=drive_link)
 - 🙌 **Sunday Worship & Communion**
     - 10AM - 12PM at [Bach Elementary School](https://maps.app.goo.gl/dZPSs5uELxZ6f25e6). Contact for Zoom details.
 - 🏠 **Weekly Home Gatherings** (contact for details and rides!)
