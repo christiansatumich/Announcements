@@ -16,7 +16,6 @@
 ## 🕒 Upcoming
 - 📖 **Gospel of John Bible Reading Challenge**
     -  1 chapter per day for 3 weeks, beginning Oct 3!
-    -  ➡️ [Log daily reading here](https://forms.gle/qbAYJ5S1YQX3wZNm9)
     -  📊 [See others' progress here](https://tinyurl.com/CSMJohnChallenge)
 - 🥳 **Celebration Lunch**:
     - Nov 23 at 11AM. Location TBA.
