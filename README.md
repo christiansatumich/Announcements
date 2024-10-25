@@ -14,9 +14,6 @@
     - 7:30 - 8:30PM at [Turner Resource Center](https://maps.app.goo.gl/68Ut4Q6T4kP9o5zT6). Contact for Zoom details.
 
 ## 🕒 Upcoming
-- 📖 **Gospel of John Bible Reading Challenge**
-    -  1 chapter per day for 3 weeks, beginning Oct 3!
-    -  📊 [See final results here](https://tinyurl.com/CSMJohnChallenge)
 - 🥳 **Celebration Lunch**:
     - Nov 23 at 11AM. Location TBA.
     - Bring your topmost enjoyment of Christ from this semester to share with everyone!
