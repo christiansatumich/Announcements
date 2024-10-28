@@ -17,7 +17,7 @@
 - 🥳 **Celebration Lunch**:
     - Nov 23 at 11AM. Location TBA.
     - Bring your topmost enjoyment of Christ from this semester to share with everyone!
-- 🎸 **Singing Time**
+- 🎸 **Singing Time**:
     - Dec 5 at 6:30PM at the Kilkennys'. Contact for details and rides!
 - 🙌 **Spring College Retreat**:
     - Feb 28 - Mar 2 in Joliet, IL
