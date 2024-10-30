@@ -23,7 +23,7 @@
     - Feb 28 - Mar 2 in Joliet, IL
     - Details TBA
 - 🚐 **Spring Break Trip**:
-    - Mar 2-7 to Colorado. Details TBA
+    - Mar 2-7, potentially to Colorado. Details TBA.
 
 ## 📖 Resources
 - 📱 Revive! App ([Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share), [iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone))
