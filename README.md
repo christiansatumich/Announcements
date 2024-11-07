@@ -14,6 +14,9 @@
     - 7:30 - 8:30PM at [Turner Resource Center](https://maps.app.goo.gl/68Ut4Q6T4kP9o5zT6). Contact for Zoom details.
 
 ## 🕒 Upcoming
+- 🥧 **Mystery Baking Challenge**
+    - Nov 16 from 2-5PM in a Christian home
+    - Come and bake something fun in small teams and enjoy one another's creations!
 - 🥳 **Celebration Lunch**:
     - Nov 23 at 11AM in Farmington Hills
     - Bring your topmost enjoyment of Christ from this semester to share with everyone!
