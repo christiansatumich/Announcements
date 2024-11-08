@@ -2,21 +2,21 @@
 - 🙌 **Revive!** ([Click here for flyer](https://drive.google.com/file/d/1uefOWIYneoHcTsMPOc_Y3IGTiAWafGAA/view?usp=drive_link))
     - Every Thu at 7:30PM from Sep 5 - Nov 21 in the Michigan Union, 2nd floor (Room 2210 ABC)
     - Optional dinner before Revive each week at 6:30PM in the Union, 1st floor at the back of Panera. [Click here to place your dinner order](https://docs.google.com/spreadsheets/d/12TVDQ02xA1ZZCSKc82Ov_jJqLw0O_uEsFYKsIrhHY00/edit?usp=drivesdk) before 5PM on Thu
+    - 📄 Nov 7 - [Revive Handout #10](https://drive.google.com/file/d/1waXvUgiwT9shMgAdVWxTM69yLBbO0XSk/view?usp=drive_link)
     - 📄 Oct 31 - [Revive Handout #9](https://drive.google.com/file/d/1PSRey5Euw2VKVnLqHRa1mAbkB13IfnFx/view?usp=drive_link)
-    - 📄 Oct 24 - [Revive Handout #8](https://drive.google.com/file/d/1LjO6ers5573zmnZ71ZnxvzKT3MJeE_tk/view?usp=drive_link)
 - 🙌 **Sunday Worship & Communion**
     - 10AM - 12PM at [Bach Elementary School](https://maps.app.goo.gl/dZPSs5uELxZ6f25e6). Contact for Zoom details.
 - 🏠 **Weekly Home Gatherings** (contact for details and rides!)
-    - Wed at 6:30PM
-    - Fri at 6:30PM
-    - Sat at 2PM
+    - Wed at 6:30PM - dinner & fellowship in two Christian homes (including guys' Bible study)
+    - Fri at 6:30PM - dinner & fellowship in several Christian homes
+    - Sat at 2PM - snacks & fellowship at the Glosups'
 - 🙏 **Tue Night Prayer Meeting**
     - 7:30 - 8:30PM at [Turner Resource Center](https://maps.app.goo.gl/68Ut4Q6T4kP9o5zT6). Contact for Zoom details.
 
 ## 🕒 Upcoming
 - 🥧 **Mystery Baking Challenge**
-    - Nov 16 from 2-5PM in a Christian home
-    - Come and bake something fun in small teams and enjoy one another's creations!
+    - Nov 16 from 2-5PM at the Glosups'
+    - Come and bake something fun in small teams and enjoy one another's culinary creations!
 - 🥳 **Celebration Lunch**:
     - Nov 23 at 11AM in Farmington Hills
     - Bring your topmost enjoyment of Christ from this semester to share with everyone!
