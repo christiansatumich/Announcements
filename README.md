@@ -15,7 +15,7 @@
 
 ## 🕒 Upcoming
 - 🥧 **Mystery Bakeoff**
-    - Nov 16 from 2-5PM at the Glosups'
+    - Nov 16 from 2-5PM at the Glosups'. Contact for rides!
     - Join us for an afternoon of delicious mayhem and friendly competition!
 - 🥳 **Celebration Lunch**:
     - Nov 23 at 11AM in Farmington Hills
