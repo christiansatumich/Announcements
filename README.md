@@ -19,7 +19,7 @@
     - Nov 16 from 2-5PM at the Glosups'. Contact for rides!
     - Join us for an afternoon of delicious mayhem and friendly competition!
 - 🥳 **Celebration Lunch**:
-    - Nov 23 at 11AM in Farmington Hills
+    - Nov 23 at 11AM in Farmington Hills ([25820 Orchard Lake Rd, Farmington Hills, MI 48336](https://maps.app.goo.gl/P8PFk7RYucPX8DaX6?g_st=ac))
     - Bring your topmost enjoyment of Christ from this semester to share with everyone! If you are not able to join in person, please feel free to still record something if you'd like!
 - 🎸 **Dinner & Singing**:
     - Dec 5 at 6:30PM at the Kilkennys'. Contact for details and rides!
