@@ -6,7 +6,7 @@
     - 📄 Nov 14 - [Revive Handout #11](https://drive.google.com/file/d/1HVgJd8DI7mGfESqmvcrX8pMUa2ws1gyY/view?usp=drivesdk)
 - 🙌 **Sunday Worship & Communion**
     - 10AM - 12PM at [Bach Elementary School](https://maps.app.goo.gl/dZPSs5uELxZ6f25e6). Contact for Zoom details.
-    - Exception: We will be meeting in Farmington HIlls on Dec 1. Contact for details and rides.
+    - ⚠️ Exception: **We will be meeting in Farmington HIlls on Dec 1**. Contact for details and rides.
 - 🏠 **Weekly Home Gatherings** (contact for details and rides!)
     - Wed at 6:30PM - dinner & fellowship in two Christian homes (including guys' Bible study)
     - Fri at 6:30PM - dinner & fellowship in several Christian homes
