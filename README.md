@@ -1,6 +1,6 @@
 ## 🔁 Recurring
 - 🙌 **Revive!** ([Click here for flyer](https://drive.google.com/file/d/1uefOWIYneoHcTsMPOc_Y3IGTiAWafGAA/view?usp=drive_link))
-    - Every Thu | 7:30-9:00PM | Jan 16 - Apr 10, except Mar 3 (spring break) | Michigan Union, 2nd floor (Room 2210 ABC)
+    - Every Thu at 7:30PM from Jan 16 - Apr 10 (except Mar 3) in the Michigan Union, 2nd floor (Room 2210 ABC)
     - Optional bring-your-own-dinner time before Revive each week at 6:30PM in the Union, 1st floor at the back of Panera.
     - 📄 Nov 21 - [Revive Handout #12](https://drive.google.com/file/d/1cftIH76_jeayEb6UVJHMXNlybda-iOW3/view?usp=drive_link)
 - 🙌 **Sunday Worship & Communion**
