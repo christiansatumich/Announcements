@@ -14,6 +14,7 @@
 ## 🕒 Upcoming
 - 🎸 **Pizza & Singing**:
     - Dec 5 from 6:30-9:30PM at the Kilkennys'. Contact for details and rides!
+    - 📄 [Song Sheet](https://drive.google.com/file/d/1t3VxVoXrqqFdN_o-CCfKGy4TbPFDAgqa/view?usp=drivesdk)
 - 🙌 **Spring College Retreat**:
     - Feb 28 - Mar 2 in Joliet, IL
     - Details TBA
