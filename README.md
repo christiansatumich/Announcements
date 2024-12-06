@@ -12,12 +12,13 @@
     - 7:30 - 8:30PM at [Turner Resource Center](https://maps.app.goo.gl/68Ut4Q6T4kP9o5zT6). Contact for Zoom details.
 
 ## 🕒 Upcoming
-- 🎸 **Pizza & Singing**:
-    - Dec 5 from 6:30-9:30PM at the Kilkennys'. Contact for details and rides!
-    - 📄 [Song Sheet](https://drive.google.com/file/d/1t3VxVoXrqqFdN_o-CCfKGy4TbPFDAgqa/view?usp=drivesdk)
-- 🙌 **Spring College Retreat**:
+- 🙌 **Revive Next Semester**: Resumes Jan 16, 2025!
+- **Gospel Trip**:
+    - California Bible school students visiting us from Jan 24 - Feb 1
+    - Join us for a week packed with activities and outreach opportunities!
+- 🙌 **Spring College Conference**:
     - Feb 28 - Mar 2 in Joliet, IL
-    - Details TBA
+    - Check out [this promo video](https://youtu.be/edrZD9zlHEE?si=6TTKTBrmtl8ObotG)
 - 🚐 **Spring Break Trip**:
     - Mar 2-7 to Knoxville, TN, along with students from our sister club in Fairborn, OH! Details TBA.
 
