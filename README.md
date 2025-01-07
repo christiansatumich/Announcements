@@ -12,6 +12,10 @@
     - 7:30 - 8:30PM at [Turner Resource Center](https://maps.app.goo.gl/68Ut4Q6T4kP9o5zT6). Contact for Zoom details.
 
 ## 🕒 Upcoming
+- 🎲 **Game Night**: Snacks will be provided 😆
+    - Welcome each other back to the frigid campus while suffering through an hour-long game of Monopoly, yelling at Tim in Scrabble, or peacefully playing solitaire!!
+        - Thursday, January 9 at 7:30 P.M.
+        - Michigan Union, 2nd floor (Room 2210 ABC: same room that Revive is usually held in)
 - 🙌 **Revive Next Semester**: Resumes Jan 16, 2025!
 - **Gospel Trip**:
     - California Bible school students visiting us from Jan 24 - Feb 1
