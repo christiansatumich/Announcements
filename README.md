@@ -22,9 +22,11 @@
     - Join us for a week packed with activities and outreach opportunities!
 - 🙌 **Spring College Conference**:
     - Feb 28 - Mar 2 in Joliet, IL
+    - Cost TBD.
     - Check out [this promo video](https://youtu.be/edrZD9zlHEE?si=6TTKTBrmtl8ObotG)
 - 🚐 **Spring Break Trip**:
     - Mar 2-7 to Knoxville, TN, along with students from our sister club in Fairborn, OH! Details TBA.
+    - Expect to pay for 1 meal/day and activities. Details TBD.
 
 ## 📖 Resources
 - 📱 Revive! App ([Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share), [iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone))
