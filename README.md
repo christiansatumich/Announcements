@@ -21,7 +21,8 @@
     - Join us for a week packed with activities and outreach opportunities!
 - 🙌 **Spring College Conference**:
     - Feb 28 - Mar 2 in Joliet, IL
-    - Cost TBD.
+        - Sign up here -> https://tinyurl.com/mwspringconf2025
+        - Registration & payment deadline: Feb. 14th
     - Check out [this promo video](https://youtu.be/edrZD9zlHEE?si=6TTKTBrmtl8ObotG)
 - 🚐 **Spring Break Trip**:
     - Mar 2-7 to Knoxville, TN, along with students from our sister club in Fairborn, OH! Details TBA.
