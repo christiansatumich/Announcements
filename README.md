@@ -16,6 +16,8 @@
 - ✝️ **Gospel Trip**:
     - California Bible school students visiting us from Jan 24 - Feb 1
     - Join us for a week packed with activities and outreach opportunities!
+        - [2025 FTTA Gospel Trip - Itinerary.pdf](https://github.com/user-attachments/files/18493739/2025.FTTA.Gospel.Trip.-.Itinerary.pdf)
+
 - 🙌 **Spring College Conference**:
     - Feb 28 - Mar 2 in Joliet, IL
         - Sign up here -> https://tinyurl.com/mwspringconf2025
