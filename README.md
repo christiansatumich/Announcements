@@ -24,7 +24,7 @@
         - Registration & payment deadline: Feb. 14th
     - Check out [this promo video](https://youtu.be/edrZD9zlHEE?si=6TTKTBrmtl8ObotG)
 - 🚐 **Spring Break Trip**:
-    - Mar 2-7 to Knoxville, TN, along with students from our sister club in Fairborn, OH! Details TBA.
+    - Mar 3-7 to Knoxville, TN, along with students from our sister club in Fairborn, OH! Details TBA.
     - Expect to pay for 1 meal/day and activities. Details TBD.
 
 ## 📖 Resources
