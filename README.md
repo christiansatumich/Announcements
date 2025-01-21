@@ -13,10 +13,6 @@
     - 7:30 - 8:30PM at [Turner Resource Center](https://maps.app.goo.gl/68Ut4Q6T4kP9o5zT6). Contact for Zoom details.
 
 ## 🕒 Upcoming
-- 🥟 **Dumpling Night!**:
-    - Join us for an evening of dumpling making with our Christian community!
-    - MLK Day (Jan 20) at 4-8pm in a Christian home
-        - DM our Instagram for rides or more info!
 - ✝️ **Gospel Trip**:
     - California Bible school students visiting us from Jan 24 - Feb 1
     - Join us for a week packed with activities and outreach opportunities!
