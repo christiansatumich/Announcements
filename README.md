@@ -24,8 +24,9 @@
         - Registration & payment deadline: Feb. 14th
     - Check out [this promo video](https://youtu.be/edrZD9zlHEE?si=6TTKTBrmtl8ObotG)
 - 🚐 **Spring Break Trip**:
-    - Mar 3-7 to Knoxville, TN, along with students from our sister club in Fairborn, OH! Details TBA.
-    - Expect to pay for 1 meal/day and activities. Details TBD.
+    - Mar 3-7 to Knoxville, TN, along with students from our sister club in Fairborn, OH!
+    - Expect to pay for 1 meal/day and activities. More details TBD.
+        - Sign-up here -> https://forms.gle/JupvqVf6GKpweGvXA
 
 ## 📖 Resources
 - 📱 Revive! App ([Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share), [iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone))
