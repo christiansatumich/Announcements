@@ -13,11 +13,6 @@
     - 7:30 - 8:30PM at [Turner Resource Center](https://maps.app.goo.gl/68Ut4Q6T4kP9o5zT6). Contact for Zoom details.
 
 ## 🕒 Upcoming
-- ✝️ **Gospel Trip**:
-    - California Bible school students visiting us from Jan 24 - Feb 1
-        - [2025 FTTA Gospel Trip - Itinerary.pdf](https://github.com/user-attachments/files/18493739/2025.FTTA.Gospel.Trip.-.Itinerary.pdf)
-    - We will be tabling on both Central (UMMA) & North (Pierpont) Mon-Thu 12:30pm-4pm.
-        - DM our IG if interested in helping spread His truth or joining us for any of the other events!
 - 🙌 **Spring College Conference**:
     - Feb 28 - Mar 2 in Joliet, IL
         - Sign up here -> https://tinyurl.com/mwspringconf2025
