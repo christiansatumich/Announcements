@@ -15,13 +15,12 @@
 ## 🕒 Upcoming
 - 🙌 **Spring College Conference**:
     - Feb 28 - Mar 2 in Joliet, IL
-        - Sign up here -> https://tinyurl.com/mwspringconf2025
-        - Registration & payment deadline: Feb. 14th
+        - [Sign up here](https://tinyurl.com/mwspringconf2025) and pay before Feb. 14
     - Check out [this promo video](https://youtu.be/edrZD9zlHEE?si=6TTKTBrmtl8ObotG)
 - 🚐 **Spring Break Trip**:
     - Mar 3-7 to Knoxville, TN, along with students from our sister club in Fairborn, OH!
-    - Expect to pay for 1 meal/day and activities. More details TBD.
-        - [Sign-up here](https://forms.gle/JupvqVf6GKpweGvXA)
+    - Expect to pay for 1 meal/day and activities.
+    - [Sign-up here](https://forms.gle/JupvqVf6GKpweGvXA)
 
 ## 📖 Resources
 - 📱 Revive! App ([Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share), [iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone))
