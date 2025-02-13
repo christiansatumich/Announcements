@@ -17,6 +17,8 @@
     - Feb 28 - Mar 2 in Joliet, IL
         - [Sign up here](https://tinyurl.com/mwspringconf2025) and pay before Feb. 14
     - Check out [this promo video](https://youtu.be/edrZD9zlHEE?si=6TTKTBrmtl8ObotG)
+- 🎲 **Game Night in a Christian Home**
+    - Sat, Feb. 22 at 6:30pm
 - ❓ **Revive Question & Response Time**:
     - Mar 27 at Revive (7:30PM in the Union, 2nd floor)
     - [Submit anonymous questions here](https://forms.gle/MAGsXMqEXoXRazyJ6)
