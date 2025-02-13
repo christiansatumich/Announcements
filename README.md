@@ -17,6 +17,9 @@
     - Feb 28 - Mar 2 in Joliet, IL
         - [Sign up here](https://tinyurl.com/mwspringconf2025) and pay before Feb. 14
     - Check out [this promo video](https://youtu.be/edrZD9zlHEE?si=6TTKTBrmtl8ObotG)
+- ❓ **Revive Question & Response Time**:
+    - Mar 27 at Revive (7:30PM in the Union, 2nd floor)
+    - [Submit anonymous questions here](https://forms.gle/MAGsXMqEXoXRazyJ6)
 - 🚐 **Spring Break Trip**:
     - Mar 3-7 to Knoxville, TN, along with students from our sister club in Fairborn, OH!
     - Expect to pay for 1 meal/day and activities.
