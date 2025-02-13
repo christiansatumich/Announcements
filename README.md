@@ -17,8 +17,8 @@
     - Feb 28 - Mar 2 in Joliet, IL
         - [Sign up here](https://tinyurl.com/mwspringconf2025) and pay before Feb. 14
     - Check out [this promo video](https://youtu.be/edrZD9zlHEE?si=6TTKTBrmtl8ObotG)
-- 🎲 **Game Night in a Christian Home**
-    - Sat, Feb. 22 at 6:30pm
+- 🎲 **Dinner & Game Night in a Christian Home**
+    - Sat, Feb. 22 at 6:30pm. Contact us for details and rides!
 - 🚐 **Spring Break Trip**:
     - Mar 3-7 to Knoxville, TN, along with students from our sister club in Fairborn, OH!
     - Expect to pay for 1 meal/day and activities.
