@@ -13,10 +13,6 @@
     - 7:30 - 8:30PM at [Turner Resource Center](https://maps.app.goo.gl/68Ut4Q6T4kP9o5zT6). Contact for Zoom details.
 
 ## 🕒 Upcoming
-- 🙌 **Spring College Conference**:
-    - Feb 28 - Mar 2 in Joliet, IL
-        - [Sign up here](https://tinyurl.com/mwspringconf2025) and pay before Feb. 14
-    - Check out [this promo video](https://youtu.be/edrZD9zlHEE?si=6TTKTBrmtl8ObotG)
 - 🎲 **Dinner & Game Night**:
     - Sat, Feb. 22 at 6:30PM in a Christian home. Contact us for details and rides!
 - 🚐 **Spring Break Trip**:
