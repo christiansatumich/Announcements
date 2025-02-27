@@ -16,6 +16,9 @@
 - ❓ **Revive Question & Response Time**:
     - Mar 27 at Revive (7:30PM in the Union, 2nd floor)
     - [Submit anonymous questions here](https://forms.gle/MAGsXMqEXoXRazyJ6)
+- 🙌 **Midwest Summer College Training**:
+    - Jul 16-20 at the University of Missouri with Christian students from all over the region!
+    - Early-bird registration Mar 1 - Apr 30 ($305/person). [Details here](https://www.collegetraining.org/)
 
 ## 📖 Resources
 - 📱 Revive! App ([Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share), [iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone))
