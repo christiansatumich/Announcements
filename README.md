@@ -13,12 +13,6 @@
     - 7:30 - 8:30PM at [Turner Resource Center](https://maps.app.goo.gl/68Ut4Q6T4kP9o5zT6). Contact for Zoom details.
 
 ## 🕒 Upcoming
-- 🎲 **Dinner & Game Night**:
-    - Sat, Feb. 22 at 6:30PM in a Christian home. Contact us for details and rides!
-- 🚐 **Spring Break Trip**:
-    - Mar 3-7 to Knoxville, TN, along with students from our sister club in Fairborn, OH!
-    - Expect to pay for 1 meal/day and activities.
-    - [Sign-up here](https://forms.gle/JupvqVf6GKpweGvXA)
 - ❓ **Revive Question & Response Time**:
     - Mar 27 at Revive (7:30PM in the Union, 2nd floor)
     - [Submit anonymous questions here](https://forms.gle/MAGsXMqEXoXRazyJ6)
