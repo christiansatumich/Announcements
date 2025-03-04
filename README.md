@@ -16,6 +16,8 @@
 - ❓ **Revive Question & Response Time**:
     - Mar 27 at Revive (7:30PM in the Union, 2nd floor)
     - [Submit anonymous questions here](https://forms.gle/MAGsXMqEXoXRazyJ6)
+- 🎶 **Dinner & Singing Time**:
+    - Apr 17 in a Christian home. Feel free to bring an instrument! Ask for details and rides.
 - 🙌 **Midwest Summer College Training**:
     - Jul 16-20 at the University of Missouri with Christian students from all over the region!
     - Early-bird registration Mar 1 - Apr 30 ($305/person). [Details here](https://www.collegetraining.org/)
