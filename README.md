@@ -4,7 +4,7 @@
     - Optional bring-your-own-dinner time before Revive each week at 6:30PM in the Union, 1st floor at the back of Panera.
     - 📄 [Revive Handout #5](https://drive.google.com/file/d/1Wc2fboZsJHrdS0B7DL3f7Ta3Ny1ySi0w/view?usp=drive_link)
 - 🙌 **Sunday Worship & Communion**
-    - 10AM - 12PM at [Bach Elementary School](https://maps.app.goo.gl/dZPSs5uELxZ6f25e6). Contact for Zoom details.
+    - 10AM - 12PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 - 🏠 **Weekly Home Gatherings** (contact for details and rides!)
     - Wed at 6:30PM - dinner & fellowship in two Christian homes (including guys' Bible study)
     - Fri at 6:30PM - dinner & fellowship in several Christian homes
