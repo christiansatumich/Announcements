@@ -10,7 +10,7 @@
     - Fri at 6:30PM - dinner & fellowship in several Christian homes
     - Sat at 2PM - snacks & fellowship at the Glosups'
 - 🙏 **Tue Night Prayer Meeting**
-    - 7:30 - 8:30PM at [Turner Resource Center](https://maps.app.goo.gl/68Ut4Q6T4kP9o5zT6). Contact for Zoom details.
+    - 7:30 - 8:30PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 
 ## 🕒 Upcoming
 - ❓ **Revive Question & Response Time**:
