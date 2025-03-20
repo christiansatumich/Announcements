@@ -18,9 +18,22 @@
     - [Submit anonymous questions here](https://forms.gle/MAGsXMqEXoXRazyJ6)
 - 🎶 **Dinner & Singing Time**:
     - Apr 17 in a Christian home. Feel free to bring an instrument! Ask for details and rides.
+
+## ☀️ Summer Training & Mentorship Opportunities
+- Please **fill out [this form](https://forms.gle/LEWQdnE1YMwr693Q7)** for any of the opportunities listed below 👇
+- 🌳 **Youth Summer Bible Camp**:
+    - Jun 18-22 in Ann Arbor & Farmington, MI
+    - A fun and meaningful opportunity to help mentor junior high kids! Transportation and housing can be provided if needed
+    - Check out [this recap video](https://drive.google.com/file/d/1crm1O6WD4HbCYs6uqmii09s38w_OtqeV/view?usp=drivesdk)
 - 🙌 **Midwest Summer College Training**:
     - Jul 16-20 at the University of Missouri with Christian students from all over the region!
     - Early-bird registration Mar 1 - Apr 30 ($305/person). [Details here](https://www.collegetraining.org/)
+    - [Promo video](https://youtu.be/8ssqxBb_8mc?si=9J4VhCNNrwhSLplE)
+- 🔨 **Summer Internship**:
+    - Aug 11 - Sep 1 in Ann Arbor with other students. If you're looking for a place to grow your relationship with Christ and learn how to serve Him on your campus with other students, this is for you!
+    - Application form will come out soon! Transportation, housing, and stipend may be provided if needed.
+- 🔥 **Student Leadership Positions**:
+    -  Wanting to be more involved in your faith and community? Live, learn, and serve by becoming a student leader! Please fill out the form above and we will reach out to you!
 
 ## 📖 Resources
 - 📱 Revive! App ([Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share), [iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone))
