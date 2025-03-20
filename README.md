@@ -20,7 +20,7 @@
     - Apr 17 in a Christian home. Feel free to bring an instrument! Ask for details and rides.
 
 ## ☀️ Summer Training & Mentorship Opportunities
-- Please **fill out [this form](https://forms.gle/LEWQdnE1YMwr693Q7)** for any of the opportunities listed below 👇
+Please **fill out [this form](https://forms.gle/LEWQdnE1YMwr693Q7)** for any of the opportunities listed below 👇
 - 🌳 **Youth Summer Bible Camp**:
     - Jun 18-22 in Ann Arbor & Farmington, MI
     - A fun and meaningful opportunity to help mentor junior high kids! Transportation and housing can be provided if needed
