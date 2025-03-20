@@ -2,7 +2,7 @@
 - 🙌 **Revive!**
     - Every Thu at 7:30PM from Jan 16 - Apr 10 (except Mar 3) in the Michigan Union, 2nd floor (Room 2210 ABC)
     - Optional bring-your-own-dinner time before Revive each week at 6:30PM in the Union, 1st floor at the back of Panera.
-    - 📄 [Revive Handout #5](https://drive.google.com/file/d/1Wc2fboZsJHrdS0B7DL3f7Ta3Ny1ySi0w/view?usp=drive_link)
+    - 📄 [Revive Handout #9](https://drive.google.com/file/d/1MjU4SnWqwTjEgD8-4J4r8_1TfgCEXrSk/view?usp=drive_link)
 - 🙌 **Sunday Worship & Communion**
     - 10AM - 12PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 - 🏠 **Weekly Home Gatherings** (contact for details and rides!)
