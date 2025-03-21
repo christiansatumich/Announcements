@@ -16,6 +16,8 @@
 - ❓ **Revive Question & Response Time**:
     - Mar 27 at Revive (7:30PM in the Union, 2nd floor)
     - [Submit anonymous questions here](https://forms.gle/MAGsXMqEXoXRazyJ6)
+- **Visitors!**
+    - 15-20 Christians from Madison, WI will be visiting from Mar 27-30, starting with Revive! More details about how to spend time with them will be announced soon!
 - 🎶 **Dinner & Singing Time**:
     - Apr 17 in a Christian home. Feel free to bring an instrument! Ask for details and rides.
 
