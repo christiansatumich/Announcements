@@ -29,10 +29,8 @@ Please **fill out [this form](https://forms.gle/LEWQdnE1YMwr693Q7)** for any of 
     - Early-bird registration Mar 1 - Apr 30 ($305/person). [Details here](https://www.collegetraining.org/)
     - [Promo video](https://youtu.be/8ssqxBb_8mc?si=9J4VhCNNrwhSLplE)
 - 🔨 **Summer Internship**:
-    - Aug 11 - Sep 1 in Ann Arbor with other students. If you're looking for a place to grow your relationship with Christ and learn how to serve Him on your campus with other students, this is for you!
-    - Application form will come out soon! Transportation, housing, and stipend may be provided if needed.
-- 🔥 **Student Leadership Positions**:
-    -  Wanting to be more involved in your faith and community? Live, learn, and serve by becoming a student leader! Please fill out the form above and we will reach out to you!
+    - Aug 11 - Sep 1 in Ann Arbor with other students. If you're looking for a place to grow your relationship with Christ and to become a student leader serving Him on your campus with other students, this is for you! There will be leadership positions available and practical mentorship to help you grow this summer!
+    - Transportation, housing, and stipend may be provided if needed. Please fill out the form above and we will reach out to you!
 
 ## 📖 Resources
 - 📱 Revive! App ([Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share), [iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone))
