@@ -13,11 +13,6 @@
     - 7:30 - 8:30PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 
 ## 🕒 Upcoming
-- ❓ **Revive Question & Response Time**:
-    - Mar 27 at Revive (7:30PM in the Union, 2nd floor)
-    - [Submit anonymous questions here](https://forms.gle/MAGsXMqEXoXRazyJ6)
-- 🚗 **Visitors!**
-    - 15-20 Christians from Madison, WI will be visiting us from Mar 27-30, beginning with Revive! More details about how to spend time with them will be announced soon!
 -  🎊 **End-of-semester Celebration Lunch**
     - 12PM on Sat, Apr 12 at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact club staff for details.
 - 🎶 **Dinner & Singing Time**:
