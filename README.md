@@ -1,8 +1,7 @@
 ## 🔁 Recurring
 - 🙌 **Revive!**
-    - Every Thu at 7:30PM from Jan 16 - Apr 10 (except Mar 3) in the Michigan Union, 2nd floor (Room 2210 ABC)
+    - Will resume against next semester! Every Thu at 7:30PM from Sep 4 - Nov 20 in the Michigan Union, 2nd floor (Room 2210 ABC). Only exception will be Sep 18 (Wolverine Room, 3rd floor)
     - Optional bring-your-own-dinner time before Revive each week at 6:30PM in the Union, 1st floor at the back of Panera.
-    - 📄 [Revive Handout #12](https://drive.google.com/file/d/1sNj-aKiRh6ye7C5hoMZaePUwNHxCSkjZ/view?usp=drive_link)
 - 🙌 **Sunday Worship & Communion**
     - 10AM - 12PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 - 🏠 **Weekly Home Gatherings** (contact for details and rides!)
@@ -13,8 +12,6 @@
     - 7:30 - 8:30PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 
 ## 🕒 Upcoming
--  🎊 **End-of-semester Celebration Lunch**
-    - 12PM on Sat, Apr 12 at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact club staff for details.
 - 🎶 **Dinner & Singing Time**:
     - 6:30-9:00PM on Apr 17 at the Kilkennys'! Feel free to bring an instrument! Ask for details and rides.
 
