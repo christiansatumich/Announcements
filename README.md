@@ -16,7 +16,7 @@
 -  🎊 **End-of-semester Celebration Lunch**
     - 12PM on Sat, Apr 12 at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact club staff for details.
 - 🎶 **Dinner & Singing Time**:
-    - Apr 17 in a Christian home. Feel free to bring an instrument! Ask for details and rides.
+    - 6:30-9:00PM on Apr 17 at the Kilkennys'! Feel free to bring an instrument! Ask for details and rides.
 
 ## ☀️ Summer Training & Leadership Opportunities
 Please **fill out [this form](https://forms.gle/LEWQdnE1YMwr693Q7)** for any of the opportunities listed below 👇
