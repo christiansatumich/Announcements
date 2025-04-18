@@ -16,7 +16,6 @@
     - 6:30-9:00PM on Apr 17 at the Kilkennys'! Feel free to bring an instrument! Ask for details and rides.
 
 ## ☀️ Summer Training & Leadership Opportunities
-Please **fill out [this form](https://forms.gle/LEWQdnE1YMwr693Q7)** for any of the opportunities listed below 👇
 - 🌳 **Youth Summer Bible Camp**:
     - Jun 18-22 in Ann Arbor & Farmington, MI
     - A fun and meaningful opportunity to help mentor junior high kids! Transportation and housing can be provided if needed
@@ -27,7 +26,7 @@ Please **fill out [this form](https://forms.gle/LEWQdnE1YMwr693Q7)** for any of 
     - [Promo video](https://youtu.be/8ssqxBb_8mc?si=9J4VhCNNrwhSLplE)
 - 🔨 **Summer Internship**:
     - Aug 11 - Sep 1 in Ann Arbor with other students. If you're looking for a place to grow your relationship with Christ and to become a student leader serving Him on your campus with other students, this is for you! There will be leadership positions available and practical mentorship to help you grow this summer!
-    - Transportation, housing, and stipend may be provided if needed. Please fill out the form above and we will reach out to you!
+    - Transportation, housing, and stipend may be provided if needed. [Apply now!](https://forms.gle/5uJM7E2NcvCwt6PKA)
 
 ## 📖 Resources
 - 📱 Revive! App ([Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share), [iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone))
