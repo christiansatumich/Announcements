@@ -23,7 +23,7 @@ Please **fill out [this form](https://forms.gle/LEWQdnE1YMwr693Q7)** for any of 
     - Check out [this recap video](https://drive.google.com/file/d/1crm1O6WD4HbCYs6uqmii09s38w_OtqeV/view?usp=drivesdk)
 - 🙌 **Midwest Summer College Training**:
     - Jul 16-20 at the University of Missouri with Christian students from all over the region!
-    - Early-bird registration until Apr 15 ($320/person, including room & board). Afterward, $360/person until May 31. [Details here](https://www.collegetraining.org/)
+    - Early-bird registration until Apr 30 ($320/person, including room & board). Afterward, $360/person until May 31. [Details here](https://www.collegetraining.org/)
     - [Promo video](https://youtu.be/8ssqxBb_8mc?si=9J4VhCNNrwhSLplE)
 - 🔨 **Summer Internship**:
     - Aug 11 - Sep 1 in Ann Arbor with other students. If you're looking for a place to grow your relationship with Christ and to become a student leader serving Him on your campus with other students, this is for you! There will be leadership positions available and practical mentorship to help you grow this summer!
