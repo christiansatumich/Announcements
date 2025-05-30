@@ -12,8 +12,8 @@
     - 7:30 - 8:30PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 
 ## 🕒 Upcoming
-- 🎶 **Dinner & Singing Time**:
-    - 6:30-9:00PM on Apr 17 at the Kilkennys'! Feel free to bring an instrument! Ask for details and rides.
+- 🎉 **Welcome Events**:
+    - Stay tuned for welcome week events for Fall 2025!
 
 ## ☀️ Summer Training & Leadership Opportunities
 - 🌳 **Youth Summer Bible Camp**:
