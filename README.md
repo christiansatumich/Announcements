@@ -30,4 +30,5 @@
 
 ## 📖 Resources
 - 📱 Revive! App ([Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share), [iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone))
+- 🗨️ [Class of 2029 Discord](https://discord.gg/U2QwskUS)
 - 📄 [Winter 2025 Revive Handouts](https://drive.google.com/drive/folders/1NNzmlFKc6CyKnoH7LbPYm6oF6j5LY5qO)
