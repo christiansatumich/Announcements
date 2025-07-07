@@ -5,14 +5,13 @@
 - 🙌 **Sunday Worship & Communion**
     - 10AM - 12PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 - 🏠 **Weekly Home Gatherings** (contact for details and rides!)
-    - Wed at 6:30PM - dinner & fellowship in two Christian homes (including guys' Bible study)
     - Fri at 6:30PM - dinner & fellowship in several Christian homes
     - Sat at 2PM - snacks & fellowship at the Glosups'
 - 🙏 **Tue Night Prayer Meeting**
     - 7:30 - 8:30PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 
 ## 🕒 Upcoming
-- 🎉 **Welcome Events**:
+- 🎉 **Fall 2025 Welcome Events**:
     - [Sign up here](https://forms.gle/a22Wq3oroDAPSzJp6)!
 
 ## 📖 Resources
