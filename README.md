@@ -13,20 +13,7 @@
 
 ## 🕒 Upcoming
 - 🎉 **Welcome Events**:
-    - Stay tuned for welcome week events for Fall 2025!
-
-## ☀️ Summer Training & Leadership Opportunities
-- 🌳 **Youth Summer Bible Camp**:
-    - Jun 18-22 in Ann Arbor & Farmington, MI
-    - A fun and meaningful opportunity to help mentor junior high kids! Transportation and housing can be provided if needed
-    - Check out [this recap video](https://drive.google.com/file/d/1crm1O6WD4HbCYs6uqmii09s38w_OtqeV/view?usp=drivesdk)
-- 🙌 **Midwest Summer College Training**:
-    - Jul 16-20 at the University of Missouri with Christian students from all over the region!
-    - Early-bird registration until Apr 30 ($320/person, including room & board). Afterward, $360/person until May 31. [Details here](https://www.collegetraining.org/)
-    - [Promo video](https://youtu.be/8ssqxBb_8mc?si=9J4VhCNNrwhSLplE)
-- 🔨 **Summer Internship**:
-    - Aug 11 - Sep 1 in Ann Arbor with other students. If you're looking for a place to grow your relationship with Christ and to become a student leader serving Him on your campus with other students, this is for you! There will be leadership positions available and practical mentorship to help you grow this summer!
-    - Transportation, housing, and stipend may be provided if needed. [Apply now!](https://forms.gle/5uJM7E2NcvCwt6PKA)
+    - [Sign up here](https://forms.gle/a22Wq3oroDAPSzJp6)!
 
 ## 📖 Resources
 - 📱 Revive! App ([Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share), [iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone))
