@@ -2,8 +2,8 @@
 - 🙌 **Revive!**
     - Every Thu at 7:30PM from Sep 4 - Nov 20 in the Michigan Union, 2nd floor (Room 2210 ABC). Only exception is Sep 18 (Wolverine Room, 3rd floor)
     - Optional bring-your-own-dinner time before Revive each week at 6:30PM in the Union, 1st floor at the back of Panera.
-- 🙌 **Sunday Worship & Communion**
-    - 10AM - 12PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
+- 🙌 **Sunday Service**
+    - 11AM - 12PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for details.
 - 🏠 **Weekly Home Gatherings** (contact for details and rides!)
     - Fri at 6:30PM - dinner & fellowship in Christian homes
     - Sat at 2PM - snacks & fellowship at the Glosups'
