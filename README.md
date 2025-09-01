@@ -11,7 +11,7 @@
     - 7:30 - 8:30PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 
 ## 🕒 Upcoming
-- 🎉 **Fall 2025 Welcome Events**: [Sign up here](https://forms.gle/a22Wq3oroDAPSzJp6)!
+- 🎉 **Fall 2025 Welcome Events**: [Sign up here](https://linktr.ee/christiansatumich)!
 
 ## 📖 Resources
 - 🌳 [Club Linktree](https://linktr.ee/christiansatumich)
