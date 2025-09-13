@@ -2,7 +2,7 @@
 - 🙌 **Revive!**
     - Every Thu at 7:30PM from Sep 4 - Nov 20 in the Michigan Union, 2nd floor (Room 2210 ABC). Only exception is Sep 18 (Wolverine Room, 3rd floor)
 - 🙌 **Sunday Service**
-    - 11AM - 12PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for details.
+    - 11AM - 12PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Rides are available!
 - 🏠 **Weekly Home Gatherings** (contact for details and rides!)
     - Fri at 6:30PM - dinner & fellowship in Christian homes
     - Sat at 2PM - snacks & fellowship at the Glosups'
