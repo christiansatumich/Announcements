@@ -10,7 +10,9 @@
     - 7:30 - 8:30PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 
 ## 🕒 Upcoming
-- 🎉 **Fall 2025 Welcome Events**: [Sign up here](https://linktr.ee/christiansatumich)!
+- 🍂 **Fall College Conference**
+    - Oct 31 - Nov 2 at Higher Ground Conference & Retreat Center in Indiana
+    - Registration cost will be $115, including lodging and meals
 
 ## 📖 Resources
 - 🌳 [Club Linktree](https://linktr.ee/christiansatumich)
