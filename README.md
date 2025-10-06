@@ -12,7 +12,7 @@
 ## 🕒 Upcoming
 - 🍂 **Fall Retreat**
     - Oct 31 - Nov 2 at Higher Ground Conference & Retreat Center in Indiana with students from all over the Midwest!
-    - Registration cost will be $115, including lodging and meals. [Sign up here!](https://docs.google.com/forms/d/e/1FAIpQLSeV0gWz2OpjAm35JOnbZmFkNWLHTg912TOPWD7o_ysiEeu6QA/viewform?usp=dialog)
+    - Registration cost will be $115, including lodging and meals. [Sign up here](https://docs.google.com/forms/d/e/1FAIpQLSeV0gWz2OpjAm35JOnbZmFkNWLHTg912TOPWD7o_ysiEeu6QA/viewform?usp=dialog) before Oct 20!
 
 ## 📖 Resources
 - 🌳 [Club Linktree](https://linktr.ee/christiansatumich)
