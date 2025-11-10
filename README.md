@@ -1,18 +1,17 @@
 ## 🔁 Recurring
 - 🙌 **Revive!**
-    - Every Thu at 7:30PM from Sep 4 - Nov 20 in the Michigan Union, 2nd floor (Room 2210 ABC). Only exception is Sep 18 (Wolverine Room, 3rd floor)
+    - Every Thu from 8:30-9PM from Sep 4 - Nov 20 in the Michigan Union, 2nd floor (Room 2210 ABC). There is also an optional study time beforehand from 7:30-8:30PM.
 - 🙌 **Sunday Service**
     - 11AM - 12PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Rides are available!
 - 🏠 **Weekly Home Gatherings** (contact for details and rides!)
-    - Fri at 6:30PM - dinner & fellowship in Christian homes
-    - Sat at 2PM - snacks & fellowship at the Glosups'
+    - Wed & Fri at 6:30PM - dinner & fellowship in various Christian homes
 - 🙏 **Tue Night Prayer Meeting**
     - 7:30 - 8:30PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 
 ## 🕒 Upcoming
-- 🍂 **Fall Retreat**
-    - Oct 31 - Nov 2 at Higher Ground Conference & Retreat Center in Indiana with students from all over the Midwest!
-    - Registration cost will be $115, including lodging and meals. [Sign up here](https://docs.google.com/forms/d/e/1FAIpQLSeV0gWz2OpjAm35JOnbZmFkNWLHTg912TOPWD7o_ysiEeu6QA/viewform?usp=dialog) by Oct 20.
+- 🌱 **Spring College COnference**
+    - Feb 20-22, 2026 in Ohio with students from all over the Midwest!
+    - Registration details TBA
 
 ## 📖 Resources
 - 🌳 [Club Linktree](https://linktr.ee/christiansatumich)
