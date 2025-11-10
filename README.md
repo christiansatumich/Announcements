@@ -9,9 +9,11 @@
     - 7:30 - 8:30PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 
 ## 🕒 Upcoming
-- 🌱 **Spring College COnference**
+- 🌱 **Spring College Conference**
     - Feb 20-22, 2026 in Ohio with students from all over the Midwest!
     - Registration details TBA
+- 🚐 **Spring Break Trip**
+    - Mar 2-6, 2026 (tentatively). More details TBA.
 
 ## 📖 Resources
 - 🌳 [Club Linktree](https://linktr.ee/christiansatumich)
