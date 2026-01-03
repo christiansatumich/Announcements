@@ -1,6 +1,7 @@
 ## 🔁 Recurring
-- 🙌 **Revive!**
-    - Every Thu from 8:30-9PM from Sep 4 - Nov 20 in the Michigan Union, 2nd floor (Room 2210 ABC). There is also an optional study time beforehand from 7:30-8:30PM.
+- 📖 **10 at 10 | Bible Reading**
+    - Every Mon-Fri at 10PM on Zoom, starting Jan 12. Read the Bible Mon-Fri for 10 mins at 10pm on Zoom. Short 'n sweet. Use any Bible version. Look out for prizes throughout the semester! 🎁
+    - [Click here to join the group chat!](https://chat.whatsapp.com/IV5vuoQcyTI5BX6ey9QcLt)
 - 🙌 **Sunday Service**
     - 11AM - 12PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Rides are available!
 - 🏠 **Weekly Home Gatherings** (contact for details and rides!)
