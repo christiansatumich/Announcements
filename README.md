@@ -10,10 +10,10 @@
 
 ## 🕒 Upcoming
 - 🌱 **Spring College Conference**
-    - Feb 20-22, 2026 in Ohio with students from all over the Midwest!
-    - Registration details TBA
+    - Feb 20-22 in Ohio with students from all over the Midwest!
+    - [Register now!](https://form-pay.com/f/2026-spring-college-conference)
 - 🚐 **Spring Break Trip**
-    - Mar 2-6, 2026 (tentatively). More details TBA.
+    - Feb 28 - Mar 5
 
 ## 📖 Resources
 - 🌳 [Club Linktree](https://linktr.ee/christiansatumich)
