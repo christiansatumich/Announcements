@@ -18,7 +18,4 @@
 
 ## 📖 Resources
 - 🌳 [Club Linktree](https://linktr.ee/christiansatumich)
-- ✅ [Event Sign-in](https://forms.gle/4wrtjGVQqxFntNsu8)
 - 📱 Revive! App ([Android](https://play.google.com/store/apps/details?id=com.newandromo.dev2292363.app3300238&pcampaignid=web_share), [iOS](https://apps.apple.com/us/app/revive/id6473073801?platform=iphone))
-- 🗨️ [Class of 2029 Discord](https://discord.gg/U2QwskUS)
-- 📄 [Fall 2025 Revive Handouts](https://drive.google.com/drive/folders/1ivJbiD3V8Mfn-tpily6VfRTTB4dAFBDS?usp=sharing)
