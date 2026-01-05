@@ -10,12 +10,16 @@
     - 7:30 - 8:30PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 
 ## 🕒 Upcoming
+- 🏠 **Family Time**
+    - Each month at 1001 Green Rd: Jan 11 | Feb 6 | Mar 13 at 6:30PM, including dinner
 - 🌱 **Spring College Conference**
     - Feb 20-22 in Ohio with students from all over the Midwest!
     - [Register now!](https://mwcollegeconf.org/)
     - Send payment (depending on room arrangement) via the Revive app or directly through Venmo @CSMichiganVen
 - 🚐 **Spring Break Trip**
-    - Feb 28 - Mar 5
+    - Feb 28 - Mar 5. [Sign up here!](https://forms.gle/32zBVArQUNfUZt6f6) before Jan 12
+- 🙌🏻 **Celebration Gathering**
+    - Apr 10 at 6:30PM at 1001 Green Rd, including dinner
 
 ## 📖 Resources
 - 🌳 [Club Linktree](https://linktr.ee/christiansatumich)
