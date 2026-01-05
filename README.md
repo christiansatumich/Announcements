@@ -12,7 +12,8 @@
 ## 🕒 Upcoming
 - 🌱 **Spring College Conference**
     - Feb 20-22 in Ohio with students from all over the Midwest!
-    - [Register now!](https://form-pay.com/f/2026-spring-college-conference)
+    - [Register now!](https://mwcollegeconf.org/)
+    - Send payment (depending on room arrangement) via the Revive app or directly through Venmo @CSMichiganVen
 - 🚐 **Spring Break Trip**
     - Feb 28 - Mar 5
 
