@@ -11,9 +11,9 @@
 
 ## 🕒 Upcoming
 - 🏠 **Family Time**
-    - Each month at 1001 Green Rd at 6:30PM, including dinner: Jan 9 | Feb 6 | Mar 13
+    - Each month at 1001 Green Rd at 6:30PM, including dinner: Jan 9, Feb 6, Mar 13
 - 🙏 **Gospel Meeting**
-    - Invite your friends to hear the gospel and find the meaning of their lives!
+    - Jan 22 from 6:30-8PM in the Union, Pond room (1st floor). Invite your friends to hear the gospel and find the meaning of their lives!
 - 🌱 **Spring College Conference**
     - Feb 20-22 in Joliet, IL with students from all over the Midwest!
     - [Register now!](https://mwcollegeconf.org/)
