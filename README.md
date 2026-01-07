@@ -1,6 +1,6 @@
 ## 🔁 Recurring
 - 📖 **10 at 10 | Bible Reading**
-    - Every Mon-Fri at 10PM on Zoom, starting Jan 12. Read the Bible Mon-Fri for 10 mins at 10pm on Zoom. Short 'n sweet. Use any Bible version. Look out for prizes throughout the semester! 🎁
+    - Every Mon-Fri at 10PM on Zoom, starting Jan 12 with Matthew 1. Read the Bible Mon-Fri for 10 mins at 10pm on Zoom. Short 'n sweet. Use any Bible version. Look out for prizes throughout the semester! 🎁
     - [Click here to join the group chat!](https://chat.whatsapp.com/IV5vuoQcyTI5BX6ey9QcLt)
 - 🙌 **Sunday Service**
     - 11AM - 12PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Rides are available!
@@ -15,7 +15,7 @@
 - 🙏 **Gospel Meeting**
     - Invite your friends to hear the gospel and find the meaning of their lives!
 - 🌱 **Spring College Conference**
-    - Feb 20-22 in Ohio with students from all over the Midwest!
+    - Feb 20-22 in Joliet, IL with students from all over the Midwest!
     - [Register now!](https://mwcollegeconf.org/)
     - Send payment (depending on room arrangement) via the Revive app or directly through Venmo @CSMichiganVen
 - 🚐 **Spring Break Trip**
