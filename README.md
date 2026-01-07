@@ -4,20 +4,22 @@
     - [Click here to join the group chat!](https://chat.whatsapp.com/IV5vuoQcyTI5BX6ey9QcLt)
 - 🙌 **Sunday Service**
     - 11AM - 12PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Rides are available!
-- 🏠 **Weekly Home Gatherings** (contact for details and rides!)
+- 🏠 **Weekly Home Dinners** (contact for details and rides!)
     - Wed & Fri at 6:30PM - dinner & fellowship in various Christian homes
 - 🙏 **Tue Night Prayer Meeting**
     - 7:30 - 8:30PM at [1001 Green Rd](https://maps.app.goo.gl/oLEnSGYD7tf69Gjz7). Contact for Zoom details.
 
 ## 🕒 Upcoming
 - 🏠 **Family Time**
-    - Each month at 1001 Green Rd: Jan 11 | Feb 6 | Mar 13 at 6:30PM, including dinner
+    - Each month at 1001 Green Rd at 6:30PM, including dinner: Jan 9 | Feb 6 | Mar 13
+- 🙏 **Gospel Meeting**
+    - Invite your friends to hear the gospel and find the meaning of their lives!
 - 🌱 **Spring College Conference**
     - Feb 20-22 in Ohio with students from all over the Midwest!
     - [Register now!](https://mwcollegeconf.org/)
     - Send payment (depending on room arrangement) via the Revive app or directly through Venmo @CSMichiganVen
 - 🚐 **Spring Break Trip**
-    - Feb 28 - Mar 5. [Sign up here!](https://forms.gle/32zBVArQUNfUZt6f6) before Jan 12
+    - Feb 28 - Mar 5. [Sign up here!](https://forms.gle/32zBVArQUNfUZt6f6) before Jan 12 at noon
 - 🙌🏻 **Celebration Gathering**
     - Apr 10 at 6:30PM at 1001 Green Rd, including dinner
 
