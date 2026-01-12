@@ -11,7 +11,13 @@
 
 ## 🕒 Upcoming
 - 🏠 **Family Time**
-    - Each month at 1001 Green Rd at 6:30PM, including dinner: Jan 9, Feb 6, Mar 13
+    - Each month at 1001 Green Rd at 6:30PM, including dinner: Feb 6, Mar 13
+- 🍴 **Gospel Trip Welcome Dinner**
+    - Jan 17 from 6-9PM at 1001 Green Rd
+- 🚗 **Whirlyball**
+    - Jan 18 from 3-4PM in Whirlyball in Novi. Please arrive on time to maximize gameplay during our reservation!
+- 🥟 **Dumpling & Study Night**
+    - Jan 19 (MLK Day, no school) from 5-7:30PM at 1001 Green Rd
 - 🙏 **Gospel Meeting**
     - Jan 22 from 6:30-8PM in the Union, Pond room (1st floor). Invite your friends to hear the gospel and find the meaning of their lives!
 - 🌱 **Spring College Conference**
