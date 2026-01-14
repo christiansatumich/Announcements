@@ -22,7 +22,7 @@
     - Jan 22 from 6:30-8PM in the Union, Pond room (1st floor). Invite your friends to hear the gospel and find the meaning of their lives!
 - 🌱 **Spring College Conference**
     - Feb 20-22 in Joliet, IL with students from all over the Midwest!
-    - [Register now!](https://mwcollegeconf.org/)
+    - [Register now!](https://mwcollegeconf.org/) by Feb 8
     - Send payment (depending on room arrangement) via the Revive app or directly through Venmo @CSMichiganVen
 - 🚐 **Spring Break Trip**
     - Feb 28 - Mar 5. [Sign up here!](https://forms.gle/32zBVArQUNfUZt6f6) before Jan 12 at noon
