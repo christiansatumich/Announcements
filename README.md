@@ -14,7 +14,7 @@
     - Each month at 1001 Green Rd at 6:30PM, including dinner: Feb 6, Mar 13
 - 🌱 **Spring College Conference**
     - Feb 20-22 in Joliet, IL with students from all over the Midwest!
-    - [Register now!](https://mwcollegeconf.org/) by Feb 8
+    - [Register now!](https://mwcollegeconf.org/) by Feb 4
     - Send payment (depending on room arrangement) via the Revive app or directly through Venmo @CSMichiganVen
 - 🚐 **Spring Break Trip**
     - Feb 28 - Mar 5. [Sign up here!](https://forms.gle/32zBVArQUNfUZt6f6)
