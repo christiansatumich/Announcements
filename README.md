@@ -1,5 +1,5 @@
 ## 🔁 Recurring
-- 📖 **10 at 10 | Bible Reading**
+- 📖 **10 at 10 Bible Reading**
     - Every Mon-Fri at 10PM on Zoom. Read the Bible Mon-Fri for 10 mins at 10pm on Zoom. Short 'n sweet. Use any Bible version. Look out for prizes throughout the semester! 🎁
     - [Click here to join the group chat!](https://chat.whatsapp.com/IV5vuoQcyTI5BX6ey9QcLt)
 - 🙌 **Sunday Service**
