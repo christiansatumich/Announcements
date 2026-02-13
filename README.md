@@ -11,7 +11,7 @@
 
 ## 🕒 Upcoming
 - 🏠 **Family Time**
-    - Each month at 1001 Green Rd at 6:30PM, including dinner: Feb 6, Mar 13
+    - Each month at 1001 Green Rd at 6:30PM, including dinner. Next one is Mar 13
 - 🌱 **Spring College Conference**
     - Feb 20-22 in Joliet, IL with students from all over the Midwest!
     - [Click here for more info!](https://mwcollegeconf.org/)
